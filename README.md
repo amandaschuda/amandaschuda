@@ -2,7 +2,7 @@
 **amandaschuda/amandaschuda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
-- 🌱 I’m currently learning desenvolvimneto de sistema 
+- 🌱 I’m currently learning desenvolvimento de sistema 
 - **MEU E-MAIL É amanda.schuda@escola.pr.gov.br**
 - ✨ 𝓐𝐌𝓐𝓝𝓓𝓐
 - _amanda_
