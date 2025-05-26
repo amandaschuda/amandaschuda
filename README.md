@@ -3,6 +3,7 @@
 
 
 - 🌱 I’m currently learning desenvolvimneto de sistema 
+- 𝓐𝓜𝓐𝐍𝓓𝓐
 - ✮⋆˙🎱🕷️
 - ᯓ★🎸
 - ✩♬ ₊˚.🎧⋆☾⋆⁺₊✧
