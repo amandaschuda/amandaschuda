@@ -4,7 +4,8 @@
 
 - 🌱 I’m currently learning desenvolvimento de sistema 
 - **MEU E-MAIL É amanda.schuda@escola.pr.gov.br**
-- ✨ 𝓐𝐌𝓐𝓝𝓓𝓐
+-  𝓐𝐌𝓐𝓝𝓓𝓐
+-  ✰ 𝐊 ‪<𝟑
 - _amanda_
 - ✮⋆˙🎱🕷️
 - ᯓ★🎸
